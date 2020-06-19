@@ -21,7 +21,7 @@ wie Moonlight Shadow, Shadow on the Wall und Pictures in the Dark.
 * 1987 Islands
 * 1989 Earth Moving
 * 1990 Amarok
-* 1991 Heaven’s Open
+* 1991 Heaven's Open
 * 1992 Tubular Bells II
 * 1994 The Songs of Distant Earth
 * 1996 Voyager
